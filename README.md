@@ -8,6 +8,7 @@
 - ⚡ Fun fact **I worked as a mind reader**
 
 <h3 align="left">Connect with me:</h3>
+<h2>📧 a.hoffman.lon@gmail.com<h2>
 <p align="left">
 </p>
 
